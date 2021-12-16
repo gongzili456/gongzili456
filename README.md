@@ -9,7 +9,7 @@ An open-source maintainer, coder and living in Beijing China.
 
 ### 📫 How to reach me: 
   - [Telegram](https://t.me/liuguili)
-  - [Twitter](https://twitter.com/liu_guili)
+  - [Twitter](https://twitter.com/hola_rory)
   - [Gmail](mailto:gongzili456@gmail.com)
   
 🎉 thanks for coming!
